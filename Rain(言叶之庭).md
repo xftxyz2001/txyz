@@ -1,0 +1,3 @@
+- [萌娘百科-Rain(言叶之庭)](https://zh.moegirl.org.cn/Rain(%E8%A8%80%E5%8F%B6%E4%B9%8B%E5%BA%AD))
+- [微博-《言叶之庭》片尾曲《Rain》中文歌词](http://blog.sina.com.cn/s/blog_6512d3cc0101gvnu.html)
+- [哔哩哔哩-【4K顶级画质】言叶之庭片尾曲《Rain》原盘，8分钟结局完整版！！！](https://www.bilibili.com/video/BV1Vr4y1C7zG)
