@@ -1,0 +1,5 @@
+- [萌娘百科-My_Soul,_Your_Beats!](https://zh.moegirl.org.cn/My_Soul,_Your_Beats!)
+- [jpmarumaru-My Soul, Your Beats! - Lia](https://www.jpmarumaru.com/tw/JPSongPlay-3523.html)
+- [哔哩哔哩-My Soul,Your Beats - Angel Beats-OP 完整版 中日字幕-Lia](https://www.bilibili.com/video/BV1Yx411y7AY)
+- [哔哩哔哩-【收藏级画质】【1080P+】《Angel Beats! 》OP 天使的心跳 My Soul,Your Beats! -Lia](https://www.bilibili.com/video/BV1Yt41187HC)
+- [jpmarumaru-My Soul, Your Beats! - Lia](https://www.jpmarumaru.com/tw/JPSongPlay-3523.html)
