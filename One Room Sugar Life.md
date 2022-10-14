@@ -1,0 +1,4 @@
+- [萌娘百科-One Room Sugar Life](https://zh.moegirl.org.cn/One_Room_Sugar_Life)
+- [【ナナヲアカリ】One-room Sugar Life【Happy Sugar Life OP】 [1/3]](https://www.bilibili.com/video/av29403102?p=1)
+- [【1080P/7月】Happy Sugar Life OP&ED TV size [1/2]](https://www.bilibili.com/video/av26810366?p=1)
+- [微信-这部百合不仅十分阴暗，而且还十分变态？](https://mp.weixin.qq.com/s/RpyPLHIbeNte3kO0TqCipw)
