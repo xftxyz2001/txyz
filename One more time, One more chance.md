@@ -1,0 +1,4 @@
+- [萌娘百科-One more time, One more chance](https://zh.moegirl.org.cn/One_more_time,_One_more_chance)
+- [百度百科-One more time One more chance](https://baike.baidu.com/item/One%20more%20time%20One%20more%20chance/2900075)
+- [哔哩哔哩-秒速五厘米ED One more time, One more chance](https://www.bilibili.com/video/BV14s411C7v8)
+- [jpmarumaru-One more time,One more chance - 山崎まさよし](https://www.jpmarumaru.com/tw/JPSongPlay-845.html)
