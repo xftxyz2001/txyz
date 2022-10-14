@@ -1,0 +1,3 @@
+- [萌娘百科-Bravely You](https://zh.moegirl.org.cn/Bravely_You)
+- [「Bravely You/灼け落ちない翼」](http://key.soundslabel.com/discography.html?ksl0103/ksl0103)
+- [jpmarumaru-Bravely You - Lia](https://www.jpmarumaru.com/tw/JPSongPlay-3278.html)
