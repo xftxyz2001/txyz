@@ -1,0 +1,5 @@
+- [萌娘百科-irony](https://zh.moegirl.org.cn/Irony(ClariS%E6%AD%8C%E6%9B%B2))
+- [（日文）ClariS官方网站](http://www.clarismusic.jp/)
+- [（日文）SME Records](http://www.sonymusic.co.jp/)
+- [哔哩哔哩-IRONY 动漫《我的妹妹哪有那么可爱》OP官方完整版](https://www.bilibili.com/video/BV1hb411b77G)
+- [jpmarumaru-irony - はるよ](https://www.jpmarumaru.com/tw/JPSongPlay-2726.html)
