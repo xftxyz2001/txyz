@@ -1,0 +1,3 @@
+- [萌娘百科-Ring_of_Fortune](https://zh.moegirl.org.cn/Ring_of_Fortune)
+- [Ring of Fortune 佐佐木惠梨官网](https://erisasaki.net/post/112113965013/tv-op-ring-of)
+- [OP 动画官网](https://www.plastic-memories.jp/music/op.html)
