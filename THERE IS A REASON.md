@@ -1,0 +1,5 @@
+- [萌娘百科-THERE IS A REASON](https://zh.moegirl.org.cn/THERE_IS_A_REASON)
+- [『MAD 中日歌詞』 劇場版 遊戲人生 Zero 主題曲： THERE IS A REASON - 鈴木このみ](https://www.bilibili.com/video/BV1Ex411j7Aa)
+- [【剧情.AMV】游戏人生 Zero TM](https://www.bilibili.com/video/BV1bq4y1g7RX)
+- [jpmarumaru-THERE IS A REASON - 鈴木このみ](https://www.jpmarumaru.com/tw/JPSongPlay-10212.html)
+- [哔哩哔哩-【Animenz】游戏人生 零 - THERE IS A REASON 钢琴](https://www.bilibili.com/video/BV125411T7G4)
