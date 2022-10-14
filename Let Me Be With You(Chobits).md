@@ -1,0 +1,2 @@
+- [萌娘百科-Let Me Be With You(Chobits)](https://zh.moegirl.org.cn/Let_Me_Be_With_You(Chobits))
+- [哔哩哔哩-人型电脑天使心 OP 《Let Me Be With You》](https://www.bilibili.com/video/BV1ws411D7z1)
