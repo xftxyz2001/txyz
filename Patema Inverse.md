@@ -1,0 +1,2 @@
+- [网易云音乐-Patema Inverse](https://music.163.com/#/song?id=28457989)
+- [哔哩哔哩-【颠倒的帕特玛】Patema Inverse-世界语ED-（full ver.）](https://www.bilibili.com/video/BV1mv411q7VD)
