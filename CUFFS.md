@@ -1,0 +1,4 @@
+- [萌娘百科-CUFFS](https://zh.moegirl.org.cn/CUFFS)
+- [（日文）官网](http://www.cuffs.co.jp/)
+- [（中文）官方微博](https://weibo.com/u/7606253358)
+- [Sphere社长官方bilibili账号](https://space.bilibili.com/574096087)
