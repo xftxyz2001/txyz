@@ -1,0 +1,8 @@
+- [萌娘百科-Key](https://zh.moegirl.org.cn/Key)
+- [Key官网](http://key.visualarts.gr.jp/)
+- [Key母公司VISUAL ARTS官网](http://visual-arts.jp/)
+- [Kinetic Novel官网](https://key.visualarts.gr.jp/kinetic/)
+- [Key20周年特设网站](http://key.visualarts.gr.jp/key20th/)
+- [哔哩哔哩官方公式帐号](https://space.bilibili.com/477655087)
+- [新浪微博官方帐号](https://weibo.com/u/7311364778)
+- [【整理】Key（Key社）全部动画类作品索引](https://www.bilibili.com/read/cv14106515)
