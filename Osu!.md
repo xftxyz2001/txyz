@@ -1,0 +1,5 @@
+- [萌娘百科-Osu!](https://zh.moegirl.org.cn/Osu!)
+- [osu! 官网](https://osu.ppy.sh/home)
+- [osu! 服务器状态](https://status.ppy.sh/)
+- [osu!lazer Github](https://github.com/ppy/osu/)
+- [Sayobot osu! 镜像站 | Beatmap mirror](https://osu.sayobot.cn/home)
