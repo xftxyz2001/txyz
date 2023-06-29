@@ -1,0 +1,3 @@
+- [Steam-LoveChoice 拣爱](https://store.steampowered.com/app/939400/LoveChoice/)
+- [知乎-如何评价国产独立游戏《拣爱》？](https://www.zhihu.com/question/296746696)
+- [知乎-《拣爱》全通关攻略](https://zhuanlan.zhihu.com/p/373957600)
