@@ -1,0 +1,2 @@
+- [steam-Storyteller](https://store.steampowered.com/app/1624540/Storyteller/)
+- [bilibili-【散人】放飞脑洞 成为最强故事王（完结共2P）](https://www.bilibili.com/video/BV1pM4y1z7Pm/)
