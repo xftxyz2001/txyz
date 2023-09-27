@@ -1,0 +1,5 @@
+- [映画『MONDAYS／このタイムループ、上司に気づかせないと終わらない』公式サイト](https://mondays-cinema.com/)
+- [豆瓣-MONDAYS / 如果不让上司注意到这个时间循环就无法结束](https://movie.douban.com/subject/36008597/)
+- [百度百科-MONDAYS / 如果不让上司注意到这个时间循环就无法结束](https://baike.baidu.com/item/ONDAYS%20%2F%20%E5%A6%82%E6%9E%9C%E4%B8%8D%E8%AE%A9%E4%B8%8A%E5%8F%B8%E6%B3%A8%E6%84%8F%E5%88%B0%E8%BF%99%E4%B8%AA%E6%97%B6%E9%97%B4%E5%BE%AA%E7%8E%AF%E5%B0%B1%E6%97%A0%E6%B3%95%E7%BB%93%E6%9D%9F)
+- [知乎-具有黑色幽默的＂恐怖片＂一《如果不让上司知道这个时间循环就无法结束》](https://zhuanlan.zhihu.com/p/640612485)
+- [当社畜陷入时间循环（MONDAYS / 如果不让上司注意到这个时间循环就无法结束）影评](https://movie.douban.com/review/15273283/)
