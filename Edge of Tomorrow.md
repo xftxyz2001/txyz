@@ -1,0 +1,3 @@
+- [豆瓣-明日边缘](https://movie.douban.com/subject/4746257/)
+- [百度百科-明日边缘（2012年道格·里曼执导的科幻动作电影）](https://baike.baidu.com/item/%E6%98%8E%E6%97%A5%E8%BE%B9%E7%BC%98/8001733)
+- [bilibili-明日边缘](https://www.bilibili.com/bangumi/play/ss29092)
