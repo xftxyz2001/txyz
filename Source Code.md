@@ -1,0 +1,4 @@
+- [豆瓣-源代码](https://movie.douban.com/subject/3075287/)
+- [百度百科-源代码（美国2011年杰克·吉伦哈尔主演的科幻片）](https://baike.baidu.com/item/E6%BA%90%E4%BB%A3%E7%A0%81/3587471)
+- [bilibili-源代码](https://www.bilibili.com/bangumi/play/ep385273)
+- [知乎-《源代码》9次时空穿梭解析](https://zhuanlan.zhihu.com/p/139371287)
