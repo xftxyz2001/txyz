@@ -1,0 +1,4 @@
+- [萌娘百科-Ref:rain](https://zh.moegirl.org.cn/Ref:rain)
+- [百度百科-Ref:rain](https://baike.baidu.com/item/Ref%3Arain/22428301)
+- [bilibili-Aimer「Ref:rain」官方MV](https://www.bilibili.com/video/BV1T14y1R7f6/)
+- [bilibili-【HI-RES 96kHz/24bit】Ref:rain - Aimer 「恋如雨止 ED」 （DRV重制版）](https://www.bilibili.com/video/BV1bD4y1i7Jv/)
