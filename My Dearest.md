@@ -1,0 +1,2 @@
+- [萌娘百科-My Dearest](https://zh.moegirl.org.cn/My_Dearest(%E7%BD%AA%E6%81%B6%E7%8E%8B%E5%86%A0))
+- [QQ音乐-My Dearest](https://y.qq.com/n/ryqq/songDetail/0008kih60dcHgm)
