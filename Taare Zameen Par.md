@@ -1,0 +1,4 @@
+- [豆瓣-地球上的星星](https://movie.douban.com/subject/2363506/)
+- [TAARE ZAMEEN PAR](http://www.taarezameenpar.com/)
+- [维基百科-地球上的星星](https://zh.wikipedia.org/zh-cn/%E5%BF%83%E4%B8%AD%E7%9A%84%E5%B0%8F%E6%98%9F%E6%98%9F)
+- [百度百科-地球上的星星（2007年阿米尔·汗执导电影）](https://baike.baidu.com/item/%E5%9C%B0%E7%90%83%E4%B8%8A%E7%9A%84%E6%98%9F%E6%98%9F/4647384)
