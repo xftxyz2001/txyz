@@ -1,0 +1,8 @@
+- [萌娘百科-赛博朋克 边缘行者](https://zh.moegirl.org.cn/%E8%B5%9B%E5%8D%9A%E6%9C%8B%E5%85%8B_%E8%BE%B9%E7%BC%98%E8%A1%8C%E8%80%85)
+- [赛博朋克：Edgerunners](https://www.cyberpunk.net/zh-cn/edgerunners)
+- [Netflix-《電馭叛客：邊緣行者》](https://www.netflix.com/hk/title/81054853)
+- [豆瓣-赛博朋克：边缘行者](https://movie.douban.com/subject/35118256/)
+- [维基百科-赛博朋克：边缘行者](https://zh.wikipedia.org/zh-cn/%E8%B5%9B%E5%8D%9A%E6%B5%AA%E5%AE%A2)
+- [百度百科-赛博浪客](https://baike.baidu.com/item/%E8%B5%9B%E5%8D%9A%E6%B5%AA%E5%AE%A2/61692872)
+- [知乎-如何评价《赛博朋克边缘行者》?](https://www.zhihu.com/question/555721096)
+- [bilibili-一口气看完，赛博朋克：边缘行者！豆瓣9.0！](https://www.bilibili.com/video/BV1yM4y197GN/)
