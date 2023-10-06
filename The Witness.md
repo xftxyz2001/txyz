@@ -1,0 +1,4 @@
+- [Steam-The Witness](https://store.steampowered.com/app/210970/The_Witness/)
+- [bilibili-【已完结】B站最全！经典解谜游戏《The Witness》100%全谜题全收集无解说攻略_攻略](https://www.bilibili.com/video/BV13F411v7HS/)
+- [bilibili-【神解谜】The Witness 见证者完全收集（664谜题+全录音+全影片，附计数）](https://www.bilibili.com/video/BV1rF411J7Y7/)
+- [bilibili-天国藏在鼻尖之下！99%的玩家通关只玩到了1%](https://www.bilibili.com/video/BV1mH4y1Z7n8/)
