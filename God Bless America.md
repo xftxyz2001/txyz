@@ -1,0 +1,3 @@
+- [豆瓣-上帝保佑美国](https://movie.douban.com/subject/6768838/)
+- [百度百科-上帝保佑美国（美国2011年博卡·格德斯维特执导的电影）](https://baike.baidu.com/item/%E4%B8%8A%E5%B8%9D%E4%BF%9D%E4%BD%91%E7%BE%8E%E5%9B%BD/5333345?anchor=1#1)
+- [God Bless America (Official Movie Site)](https://www.magnetreleasing.com/godblessamerica/)
