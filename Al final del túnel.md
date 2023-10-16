@@ -1,0 +1,2 @@
+- [百度百科-隧道尽头](https://baike.baidu.com/item/%E9%9A%A7%E9%81%93%E5%B0%BD%E5%A4%B4)
+- [豆瓣电影-隧道尽头 Al final del túnel](https://movie.douban.com/subject/26661229/)
