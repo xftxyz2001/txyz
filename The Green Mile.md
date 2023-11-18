@@ -1,0 +1,3 @@
+- [豆瓣-绿里奇迹](https://movie.douban.com/subject/1300374/)
+- [百度百科-绿里奇迹（美国1999年弗兰克·达拉伯恩特导演电影）](https://baike.baidu.com/item/%E7%BB%BF%E9%87%8C%E5%A5%87%E8%BF%B9/15434827)
+- [bilibili-每个人身上都有一种超能力，只是觉醒的人很少，高分经典电影《绿里奇迹》](https://www.bilibili.com/video/BV1Wz4y1A7u7/)
