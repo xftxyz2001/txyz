@@ -1,0 +1,3 @@
+- [豆瓣-笨贼妙探](https://movie.douban.com/subject/1297260/)
+- [百度百科-笨贼妙探](https://baike.baidu.com/item/%E3%80%8A%E7%AC%A8%E8%B4%BC%E5%A6%99%E6%8E%A2%E3%80%8B)
+- [知乎-如何评价电影《笨贼妙探》?](https://www.zhihu.com/question/425577747)
