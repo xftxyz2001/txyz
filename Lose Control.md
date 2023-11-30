@@ -1,0 +1,2 @@
+- [Lose Control - Hedley - 单曲 - 网易云音乐](https://music.163.com/#/song?id=1850718535)
+- [听了能让你起飞的BGM《Lose Control》_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1go4y1w7BT/)
