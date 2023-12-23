@@ -1,0 +1,5 @@
+超脱、人间师格(台)
+- [超脱 (豆瓣)](https://movie.douban.com/subject/5322596/)
+- [超脱 - 维基百科，自由的百科全书](https://zh.wikipedia.org/wiki/%E8%B6%85%E8%84%B1_(%E7%94%B5%E5%BD%B1))
+- [超脱（美国2011年托尼·凯耶执导电影）_百度百科](https://baike.baidu.com/item/%E8%B6%85%E8%84%B1/4969516)
+- [超脱正片-电影-高清正版在线观看-bilibili-哔哩哔哩](https://www.bilibili.com/bangumi/play/ep201205)
