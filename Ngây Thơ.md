@@ -1,0 +1,2 @@
+- [《叹》黄龄/tang duy tan（全网最全原版MV）_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1j44y1j7cV/)
+- [越南神曲《Ngây Thơ》！那一声叹息太绝了！_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1Qa411o73Q/)
