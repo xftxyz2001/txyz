@@ -1,0 +1,3 @@
+- [爱 (豆瓣)](https://movie.douban.com/subject/4798707/)
+- [A M O U R](https://www.sonyclassics.com/amour/)
+- [爱（2012年迈克尔·哈内克执导剧情电影）_百度百科](https://baike.baidu.com/item/%E7%88%B1/3725335)
