@@ -1,0 +1,6 @@
+- [萌娘百科-传送门系列](https://zh.moegirl.org.cn/%E4%BC%A0%E9%80%81%E9%97%A8%E7%B3%BB%E5%88%97)
+- [传送门维基](https://theportalwiki.com/wiki/Main_Page)
+- [百度百科-传送门](https://baike.baidu.com/item/%E4%BC%A0%E9%80%81%E9%97%A8/15935158)
+- [在 Steam 上购买 Portal 立省 90%](https://store.steampowered.com/app/400/Portal/)
+- [在 Steam 上购买 Portal 2 立省 90%](https://store.steampowered.com/app/620/Portal_2/)
+- [Steam 上的 Portal: Revolution](https://store.steampowered.com/app/601360/Portal_Revolution/)
