@@ -1,0 +1,2 @@
+- [Gee - 少女时代 - 单曲 - 网易云音乐](https://music.163.com/#/song?id=29535435)
+- [【4K蓝光】收藏级画质 少女时代MV《Gee》多版本_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1QZ4y1u7Ei/)

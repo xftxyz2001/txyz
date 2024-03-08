@@ -1,0 +1,4 @@
+- [Beat it（1983年迈克尔·杰克逊演唱歌曲）_百度百科](https://baike.baidu.com/item/Beat%20it/5089855)
+- [Beat It - Michael Jackson - 单曲 - 网易云音乐](https://music.163.com/#/song?id=1697753)
+- [【4K】迈克尔·杰克逊《Beat it》1983 AI修复高清收藏版_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1aZ4y1H7CK/)
+- [【猫和老鼠】这才是《Beat it》原版MV！！_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1UF411K7ND/)

@@ -1,0 +1,4 @@
+- [Say something（2013年大世界乐队和克里斯蒂娜演唱歌曲）_百度百科](https://baike.baidu.com/item/Say%20something/14581677)
+- [Say Something - A Great Big World/Christina Aguilera - 单曲 - 网易云音乐](https://music.163.com/#/song?id=28247830)
+- [第一句就破防了《Say Something》听的好有感触_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1414y1h7HB/)
+- [Say something (sebastien remix)/我们意念合一_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1tP4y1M7Ns/)
