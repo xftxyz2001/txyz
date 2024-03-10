@@ -1,0 +1,2 @@
+- [《逃离塔科夫》官网 - Escape from Tarkov](https://www.escapefromtarkov.com/)
+- [《逃离塔科夫》官方 Wiki](https://escapefromtarkov.fandom.com/zh/wiki/Escape_from_Tarkov_Wiki)

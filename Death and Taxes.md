@@ -1,0 +1,2 @@
+- [Death and Taxes Game](https://deathandtaxesgame.com/)
+- [在 Steam 上购买 死亡与税赋 立省 80%](https://store.steampowered.com/app/1166290/_/)

@@ -1,0 +1,2 @@
+- [Potion Craft](https://www.potioncraft.com/)
+- [Steam 上的 药剂工艺：炼金模拟器](https://store.steampowered.com/app/1210320/_/)

@@ -1,0 +1,2 @@
+- [shapez Demo - Factory Automation Game](https://shapez.io/)
+- [Steam 上的 异形工厂（Shapez）](https://store.steampowered.com/app/1318690/Shapez/)
