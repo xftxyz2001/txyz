@@ -1,0 +1,2 @@
+- [《Viva la Vida》“以崇高敬意致世间万物——生命万岁！”_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1n14y1K7L1/)
+- [与小师妹山头共奏《Viva La Vida》大自然和音乐的视觉盛宴_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1u34y1671z/)
