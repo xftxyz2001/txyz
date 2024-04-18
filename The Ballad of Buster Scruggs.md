@@ -1,0 +1,4 @@
+- [巴斯特·斯克鲁格斯的歌谣 (豆瓣)](https://movie.douban.com/subject/26952704/)
+- [巴斯特·斯克鲁格斯的歌谣_百度百科](https://baike.baidu.com/item/%E5%B7%B4%E6%96%AF%E7%89%B9%C2%B7%E6%96%AF%E5%85%8B%E9%B2%81%E6%A0%BC%E6%96%AF%E7%9A%84%E6%AD%8C%E8%B0%A3/22766030)
+- [《巴斯特·斯克鲁格斯的歌谣》：6个故事都精彩 - 知乎](https://zhuanlan.zhihu.com/p/93823830)
+- [《巴斯特·斯克鲁格斯的歌谣》| 万物终是无常，冥冥中却有其必然 - 知乎](https://zhuanlan.zhihu.com/p/166602832)
