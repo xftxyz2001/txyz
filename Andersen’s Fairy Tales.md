@@ -1,0 +1,2 @@
+- [安徒生童话（丹麦作家安徒生创作的童话集）_百度百科](https://baike.baidu.com/item/%E5%AE%89%E5%BE%92%E7%94%9F%E7%AB%A5%E8%AF%9D/895278)
+- [安徒生童话_安徒生_在线阅读_中华典藏](https://www.zhonghuadiancang.com/waiguomingzhu/11377/)
