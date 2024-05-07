@@ -1,0 +1,5 @@
+- [【逃亡电台】Who You Are Is Not Enough - 知乎](https://zhuanlan.zhihu.com/p/259459625)
+- [Who You Are Is Not Enough - QQ音乐-千万正版音乐海量无损曲库新歌热歌天天畅听的高品质音乐平台！](https://y.qq.com/n/ryqq/albumDetail/003YD5WL23J6yo)
+- [无损音质后摇入坑神曲 I沉沦 II深陷 III悲叹 IV醒悟 V抽离 一张专辑，一个故事。陌生人，希望你连续听完 来自Athletics_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1j841177Wh/)
+- [【无损音质】后摇只负责氛围，你听到的都是自己的故事 I II III IV V 沉浸式无唱find yourself版本 来自Athletics_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1y8411j7EX/)
+- [I_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1Vk4y1i7XM)
