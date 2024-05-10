@@ -22,7 +22,7 @@ if filename == "":
     pyperclip.copy(res)
     exit(0)
 
-filename = re.sub(r'[\\/:*?"<>|]', "-", filename.lstrip())
+filename = re.sub(r'[\\/:*?"<>|]', "-", filename.strip())
 fullpath = os.path.join(os.getcwd(), f"{filename}.md")
 if os.path.exists(fullpath):
     print("文件已存在，生成的内容将保存到剪贴板")
