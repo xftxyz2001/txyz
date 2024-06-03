@@ -1,0 +1,4 @@
+- [Everywhere We Go（我们到过的地方） - 陈冠希/MC仁/厨房仔/应采儿 - 单曲 - 网易云音乐](https://music.163.com/#/song?id=65739)
+- [陈冠希-Everywhere We Go-高清MV在线看-QQ音乐-千万正版音乐海量无损曲库新歌热歌天天畅听的高品质音乐平台！](https://y.qq.com/n/ryqq/mv/X0010DhF2L9)
+- [陈冠希&应采儿《Everywhere We Go》_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1N7411c75s/)
+- [全网超火粤语歌：Everywhere We Go——十年后才火的励志神曲，建议佩戴耳机使用_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV16x4y1D7Kr/)
