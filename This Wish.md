@@ -1,0 +1,2 @@
+- [星愿——This Wish_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1jH4y1d7cW/)
+- [《星愿》中文同名主题曲——星愿_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1ea4y1Q7RK/)
