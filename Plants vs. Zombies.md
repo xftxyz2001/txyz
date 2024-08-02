@@ -3,5 +3,7 @@
 - [植僵工具箱](https://pvz.tools/)
 - [植物僵尸相关下载](http://jspvz.com/download.htm)
 - [主页 - 植物大战僵尸β版](https://pvz-beta.site/)
+- 杂交版 [B站 潜艇伟伟迷](https://space.bilibili.com/97213827)
+- 融合版 [B站 蓝飘飘fly](https://space.bilibili.com/3546619314178489)
 
 - https://txyz.lanzouu.com/b03r5ucra 密码:houn
