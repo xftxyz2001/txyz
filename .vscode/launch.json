@@ -6,7 +6,7 @@
     "configurations": [
         {
             "name": "new",
-            "type": "python",
+            "type": "debugpy",
             "request": "launch",
             "program": "f.py",
             "console": "integratedTerminal",
