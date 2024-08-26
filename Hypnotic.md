@@ -1,0 +1,2 @@
+- [催眠 (豆瓣)](https://movie.douban.com/subject/30151567/)
+- [【催眠】烧脑悬疑高端局，催眠大师团灭犯罪团伙！_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1zW421Q7Ur/)
