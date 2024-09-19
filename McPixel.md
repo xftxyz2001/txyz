@@ -1,0 +1,2 @@
+- [Steam 上的 McPixel](https://store.steampowered.com/app/220860/McPixel/)
+- [【谜之声实况】麦像素大冒险 McPixel （第四章完结）_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1Es411f7ft/)
