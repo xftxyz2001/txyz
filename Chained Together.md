@@ -1,0 +1,2 @@
+- [Steam 上的 Chained Together](https://store.steampowered.com/app/2567870/Chained_Together/)
+- [姿态《链在一起》完整通关全流程 耗时4小时24分钟！](https://www.bilibili.com/video/BV1Uy411z7NE/)

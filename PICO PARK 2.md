@@ -1,0 +1,1 @@
+- [在 Steam 上购买 PICO PARK 2 立省 10%](https://store.steampowered.com/app/2644470/PICO_PARK_2/)
