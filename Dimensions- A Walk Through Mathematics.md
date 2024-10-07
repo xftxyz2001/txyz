@@ -1,0 +1,5 @@
+- [维度：数学漫步 (豆瓣)](https://movie.douban.com/subject/3194941/)
+- [数学纪录片《维度：数学漫步》完整版_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV17E411Q7sm/)
+- [Dimensions Home](http://www.dimensions-math.org/Dim_ZH_si.htm)
+- [【木鱼微剧场】你见过四维物体吗？《维度：数学漫步》_哔哩哔哩_bilibili](https://www.bilibili.com/video/av20203833/)
+- [【木鱼微剧场】四维球体转起来有多神奇？《维度：数学漫步》（下）_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV17W411s7BM/)

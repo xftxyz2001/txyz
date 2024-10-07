@@ -1,0 +1,2 @@
+- [种群 (豆瓣)](https://movie.douban.com/subject/2072475/)
+- [一口气看完《种群》，高分科幻灾难惊悚片，未知智慧种群现世！_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1FPt7eGEE9/)

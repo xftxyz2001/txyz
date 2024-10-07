@@ -1,0 +1,3 @@
+- [Steam 上的 沙威玛传奇 - Shawarma Legend](https://store.steampowered.com/app/3036080/__Shawarma_Legend/?l=schinese)
+- [沙威玛传奇 通关 视频合集_哔哩哔哩bilibili](https://www.bilibili.com/video/BV1BLxneCEPY/)
+- [C皇本来只想玩一两个小时沙威玛传奇，没想到玩得停不下来直接通关了！_单机游戏热门视频](https://www.bilibili.com/video/BV1gL1BYjEQL/)
