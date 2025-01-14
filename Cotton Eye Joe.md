@@ -1,0 +1,2 @@
+- [Cotton Eye Joe（棉眼乔） - Rednex - 单曲 - 网易云音乐](https://music.163.com/#/song?id=18802524)
+- [《出生の小曲》Cotton Eye Joe-Rednex_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1fZ421t7LB/)
