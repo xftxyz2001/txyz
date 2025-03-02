@@ -1,0 +1,2 @@
+- [二号陪审员 (豆瓣)](https://movie.douban.com/subject/36340655/)
+- [看，文明人在法庭杀人！人人都知道他无罪，却集体举手判他死刑...2024年高分口碑之作《二号陪审员》_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1sfcMebEtB/)
