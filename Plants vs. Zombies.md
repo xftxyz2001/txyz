@@ -3,7 +3,11 @@
 - [植僵工具箱](https://pvz.tools/)
 - [植物僵尸相关下载](http://jspvz.com/download.htm)
 - [主页 - 植物大战僵尸β版](https://pvz-beta.site/)
-- 杂交版 [B站 潜艇伟伟迷](https://space.bilibili.com/97213827)
-- 融合版 [B站 蓝飘飘fly](https://space.bilibili.com/3546619314178489)
 
-- https://txyz.lanzouu.com/b03r5ucra 密码:houn
+---
+- 杂交版 [B站 潜艇伟伟迷](https://space.bilibili.com/97213827/dynamic)
+- 融合版 [B站 蓝飘飘fly](https://space.bilibili.com/3546619314178489/dynamic)
+- 资本家版 [B站 功夫青竹笋](https://space.bilibili.com/168820024/dynamic)
+- 金铲铲版 [B站 古见xzz](https://space.bilibili.com/1440934753/dynamic)
+- 精华版 [B站 萌新迎风听雨](https://space.bilibili.com/411256864/dynamic)
+- 生态版 [B站 无脸的程序](https://space.bilibili.com/1230432752/dynamic)
